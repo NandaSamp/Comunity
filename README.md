@@ -1,2 +1,0 @@
-# Comunity
-#Website Comunity NandaSamp
